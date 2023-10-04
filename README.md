@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MushroomWriter
+- 👀 I’m interested in my YouTube channel, "Mushroom Writer"
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on TheMrGenya, GD creator.
+- 📫 How to reach me: durakych02@mail.ru
